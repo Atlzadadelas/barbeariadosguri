@@ -1,2 +1,2 @@
-# barbeariadosguri
-Ninguem ta puro
+# barba
+Pagina comercial para aprendizagem.
