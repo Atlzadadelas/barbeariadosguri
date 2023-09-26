@@ -1,0 +1,2 @@
+# barbeariadosguri
+Ninguem ta puro
